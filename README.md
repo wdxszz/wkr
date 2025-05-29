@@ -4,4 +4,5 @@
 **也是十分的帅气😏**  
 
 ![WKRDSB](https://txmov2.a.kwimgs.com/upic/2025/05/29/21/BMjAyNTA1MjkyMTE3NTNfNDA4NTIzNTA5Ml8xNjU0NTg3MTQzMzRfMF82_B13025d7ad1c50f1dec2bfc6e00e8c412.jpg?tag=1-1748527104-std-0-4ksywoki34-5aa918c824679e44&clientCacheKey=3xabk69tntiuah9.jpg&di=739f67b1&bp=12681)  
-**王恺睿因写不出计算能手而破防了😂**  
+   
+[回到总站](https://wdxszz.github.io/zz)
